@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything related to informatics
 - 📫 you can email me: manel.minute@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: pitie i need to know what to do with my life
+- ⚡ Fun fact: pitie i need to know what to do with my life and i suck at maths
 
 <!---
 manelaled/manelaled is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
